@@ -55,5 +55,5 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 14. [#83 More Advanced Salsa Dance Moves](https://www.addicted2salsa.com/videos/more-advanced-salsa-dance-moves): 6/1
 15. [#87 Lock-n-Load Combo (optional On two)](https://www.addicted2salsa.com/videos/lock-n-load-combo)
 16. [#90 Teacups Salsa Dance Move (optional On two)](https://www.addicted2salsa.com/videos/teacups-salsa-dance-move)
-17. [#94 Fifty Shades of Salsa](https://www.addicted2salsa.com/videos/fifty-shades-of-salsa)
+17. [#94 Fifty Shades of Salsa](https://www.addicted2salsa.com/videos/fifty-shades-of-salsa): 6/14
 18. [#96 Topsy Turny Salsa](https://www.addicted2salsa.com/videos/topsy-turny-salsa): 6/13

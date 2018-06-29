@@ -1,11 +1,11 @@
 # SalsaPractise
 - [Salsa Dancing Walk-Through - 36 Movements](https://www.youtube.com/watch?v=aV8dS2m9Adc), done. 36/100
-- [Addicted Salsa](https://www.addicted2salsa.com/videos) to improve my salsa skills, 45 steps. 
+- [Addicted Salsa](https://www.addicted2salsa.com/videos) to improve my salsa skills, 45 steps. (39 steps done) 73/100 
 - [20 Moves of Salsa with Names - "Trucutu" song](https://www.youtube.com/watch?v=r879DgB36XU&list=RDr879DgB36XU&t=9)
 - [10 advanced salsa patterns in just 4 minutes](https://www.youtube.com/watch?v=-qXf2WEJdCY) /
 I want to do 100 times for practice in 2018, and hopefully complete it.
 
-34/100 
+73/100 
 
 ## Beginner (8/11 practised, 6/11 completed)
 1. [#37 Basic Salsa Dance Hand Juggle](https://www.addicted2salsa.com/videos/beginner?page=2): 4/2, 4/12

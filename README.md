@@ -2,7 +2,8 @@
 - [Salsa Dancing Walk-Through - 36 Movements](https://www.youtube.com/watch?v=aV8dS2m9Adc), done. 36/100
 - [Addicted Salsa](https://www.addicted2salsa.com/videos) to improve my salsa skills, 45 steps. (39 steps done) 73/100 
 - [20 Moves of Salsa with Names - "Trucutu" song](https://www.youtube.com/watch?v=r879DgB36XU&list=RDr879DgB36XU&t=9)
-- [10 advanced salsa patterns in just 4 minutes](https://www.youtube.com/watch?v=-qXf2WEJdCY) /
+- [10 advanced salsa patterns in just 4 minutes](https://www.youtube.com/watch?v=-qXf2WEJdCY)
+- [Ulysses Maclaren](https://www.youtube.com/channel/UCXqPXUWwyq5ItPVXbXF9sNA)/
 I want to do 100 times for practice in 2018, and hopefully complete it.
 
 73/100 
@@ -57,3 +58,38 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 16. [#90 Teacups Salsa Dance Move (optional On two)](https://www.addicted2salsa.com/videos/teacups-salsa-dance-move)
 17. [#94 Fifty Shades of Salsa](https://www.addicted2salsa.com/videos/fifty-shades-of-salsa): 6/14
 18. [#96 Topsy Turny Salsa](https://www.addicted2salsa.com/videos/topsy-turny-salsa): 6/13
+
+# 20 Moves of Salsa with Names - "Trucutu" song (0/21)
+1. Mezza Elica, 0:08
+2. Teaser, 0:20
+3. Setenta, 0:38
+4. Teaser soleado, 0:52
+5. Mariposa, 1:12
+6. Abanico, 1:28
+7. Matador, 1:41
+8. Round around the word, 1:56
+9. Check, 2:16
+10. La puerta, 2:30
+11. Back and slide, 2:43
+12. Doble rasoio Y la puerta, 2:55
+13. Setenata con cuita raise, 3:14
+14. Fan, 3:37
+15. Peek a boo, 3:51
+16. Cocolo, 4:00
+17. Rubber band, 4:09
+18. Eddye Y matador, 4:29
+19. Teaser Lanciato, 4:44
+20. Elicopter, 5:06
+21. Elica, 5:24
+
+# 10 advanced salsa patterns in just 4 minutes (2018)
+1. Barrel Roll, 0:08
+2. Changing lanes, 0:28
+3. Let your backbone slide, 0:48
+4. Tuk Tuk, 1:07
+5. U-turn, 1:26
+6. The lady hammer, 1:46
+7. Cuban Newyorker, 2:34
+8. Flick the Switch, 2:47
+9. The lady hammer, 3:12
+10. Touch & go, 3:27

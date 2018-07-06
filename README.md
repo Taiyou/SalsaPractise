@@ -60,11 +60,11 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 18. [#96 Topsy Turny Salsa](https://www.addicted2salsa.com/videos/topsy-turny-salsa): 6/13
 
 # 20 Moves of Salsa with Names - "Trucutu" song (0/21)
-1. Mezza Elica, 0:08
-2. Teaser, 0:20
-3. Setenta, 0:38
-4. Teaser soleado, 0:52
-5. Mariposa, 1:12
+1. Mezza Elica, 0:08, 7/6th
+2. Teaser, 0:20, 7/6th
+3. Setenta, 0:38, 7/6th
+4. Teaser soleado, 0:52, 7/6th
+5. Mariposa, 1:12, 7/6th
 6. Abanico, 1:28
 7. Matador, 1:41
 8. Round around the word, 1:56

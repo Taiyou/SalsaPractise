@@ -65,13 +65,13 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 3. Setenta, 0:38, 7/6th
 4. Teaser soleado, 0:52, 7/6th
 5. Mariposa, 1:12, 7/6th
-6. Abanico, 1:28
-7. Matador, 1:41
-8. Round around the word, 1:56
-9. Check, 2:16
-10. La puerta, 2:30
-11. Back and slide, 2:43
-12. Doble rasoio Y la puerta, 2:55
+6. Abanico, 1:28, 7/11th
+7. Matador, 1:41, 7/11th
+8. Round around the word, 1:56, 7/11th
+9. Check, 2:16, 7/11th
+10. La puerta, 2:30, 7/11th
+11. Back and slide, 2:43, 7/11th
+12. Doble rasoio Y la puerta, 2:55, 7/11th
 13. Setenata con cuita raise, 3:14
 14. Fan, 3:37
 15. Peek a boo, 3:51

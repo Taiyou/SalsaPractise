@@ -72,7 +72,7 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 10. La puerta, 2:30, 7/11th
 11. Back and slide, 2:43, 7/11th
 12. Doble rasoio Y la puerta, 2:55, 7/11th
-13. Setenata con cuita raise, 3:14
+13. Setenata con cuita raise, 3:14, 7/12th
 14. Fan, 3:37
 15. Peek a boo, 3:51
 16. Cocolo, 4:00

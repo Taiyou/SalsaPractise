@@ -73,12 +73,12 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 11. Back and slide, 2:43, 7/11th
 12. Doble rasoio Y la puerta, 2:55, 7/11th
 13. Setenata con cuita raise, 3:14, 7/12th
-14. Fan, 3:37
-15. Peek a boo, 3:51
-16. Cocolo, 4:00
-17. Rubber band, 4:09
-18. Eddye Y matador, 4:29
-19. Teaser Lanciato, 4:44
+14. Fan, 3:37, 7/26th
+15. Peek a boo, 3:51, 7/26th
+16. Cocolo, 4:00, 7/26th
+17. Rubber band, 4:09, 7/26th
+18. Eddye Y matador, 4:29, 7/26th
+19. Teaser Lanciato, 4:44, 7/26th
 20. Elicopter, 5:06
 21. Elica, 5:24
 

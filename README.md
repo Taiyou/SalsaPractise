@@ -51,13 +51,13 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 9. [#58 Salsa Dancing Knot Combinations](https://www.addicted2salsa.com/videos/latin-dance-knot-combinations): 6/28, 6/29
 10. [#59 The Oliver Salsa Turn](https://www.addicted2salsa.com/videos/the-oliver-salsa-turn): 4/20, 4/23
 11. [#62 The Hammerlock Flip Move](https://www.addicted2salsa.com/videos/the-hammerlock-flip-move): 5/23, 5/30
-12. [#76 The Patternito](https://www.addicted2salsa.com/videos/the-patternito):6/7
+12. [#76 The Patternito](https://www.addicted2salsa.com/videos/the-patternito):6/7, 10/17
 13. [#82 Salsa Shines in Social Dancing](https://www.addicted2salsa.com/videos/salsa-shines-in-social-dancing): 6/1
 14. [#83 More Advanced Salsa Dance Moves](https://www.addicted2salsa.com/videos/more-advanced-salsa-dance-moves): 6/1
 15. [#87 Lock-n-Load Combo (optional On two)](https://www.addicted2salsa.com/videos/lock-n-load-combo)
 16. [#90 Teacups Salsa Dance Move (optional On two)](https://www.addicted2salsa.com/videos/teacups-salsa-dance-move)
 17. [#94 Fifty Shades of Salsa](https://www.addicted2salsa.com/videos/fifty-shades-of-salsa): 6/14
-18. [#96 Topsy Turny Salsa](https://www.addicted2salsa.com/videos/topsy-turny-salsa): 6/13
+18. [#96 Topsy Turny Salsa](https://www.addicted2salsa.com/videos/topsy-turny-salsa): 6/13, 10/16
 
 # 20 Moves of Salsa with Names - "Trucutu" song (0/21)
 1. Mezza Elica, 0:08, 7/6th

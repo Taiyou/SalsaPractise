@@ -46,7 +46,7 @@ I want to do 100 times for practice in 2018, and hopefully complete it.
 4. [#36 Advanced Salsa Dancing Moves](https://www.addicted2salsa.com/videos/how-to-do-complex-salsa-dancing-turn-patterns): 6/27
 5. [#46 Mambo Style Salsa Dance Moves](https://www.addicted2salsa.com/videos/mambo-styled-salsa-dance-moves): 6/6
 6. [#48 Men's Styling for Salsa Dancing](https://www.addicted2salsa.com/videos/mens-styling-for-salsa-dancing): 6/1
-7. [#51 Advanced Salsa Dance Hand Flicks](https://www.addicted2salsa.com/videos/advanced-salsa-dance-hand-flicks): 5/25, 5/30
+7. [#51 Advanced Salsa Dance Hand Flicks](https://www.addicted2salsa.com/videos/advanced-salsa-dance-hand-flicks): 5/25, 5/30, 12/7
 8. [#55 Cross Body Lead Flick Lock](https://www.addicted2salsa.com/videos/cross-body-lead-flick-lock): 6/3
 9. [#58 Salsa Dancing Knot Combinations](https://www.addicted2salsa.com/videos/latin-dance-knot-combinations): 6/28, 6/29
 10. [#59 The Oliver Salsa Turn](https://www.addicted2salsa.com/videos/the-oliver-salsa-turn): 4/20, 4/23
